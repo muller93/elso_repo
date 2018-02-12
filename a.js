@@ -1,3 +1,0 @@
-
-ezt itt módosítom
-
